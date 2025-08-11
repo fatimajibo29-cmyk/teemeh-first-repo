@@ -1,4 +1,4 @@
-# Hey, I’m Teemeh! ❤️  
+# Hey, I’m Teemah! ❤️  
 Just an ordinary girl with big dreams and a wild heart.  
 💻 New to coding, exploring GitHub one step at a time.  
 🌙 Night owl vibes & lover of romance + horror flicks.  
